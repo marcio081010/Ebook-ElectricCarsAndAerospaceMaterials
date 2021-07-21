@@ -1,9 +1,8 @@
-# 
+# Electric Cars and Aerospace Materials
 
 ✏️Details📏
-🔹Orthographic review of the Portuguese language: Andréia Dellano Mendes Nunes
 
-🔸Name: 
+🔸Name: Electric Cars and Aerospace Materials
 
 🔹Language: Portuguese
 
