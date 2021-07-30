@@ -13,7 +13,7 @@
 🔸classification: ⭐⭐⭐⭐⭐
 
 📚Synopsis📐
-My book presents a brief knowledge of Cosmology in addition to subjects to reflect
+A brief knowledge about electric cars and aerospace materials
 
 ⚠️Do not use my book for purposes🚧
 ❌Commercial
